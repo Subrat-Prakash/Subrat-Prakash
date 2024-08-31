@@ -20,7 +20,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1WQE_3DOhtbBfG5tL7bc11WNvmIXkk4T1/view?usp=sharing](https://drive.google.com/file/d/1WQE_3DOhtbBfG5tL7bc11WNvmIXkk4T1/view?usp=sharing)
 
-- ⚡ Fun fact **I waste most of my time playing games**
+- ⚡ Fun fact **In free time I prefer to read blogs and Novel**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
