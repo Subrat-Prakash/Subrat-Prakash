@@ -12,7 +12,7 @@
 
 - 🤝 I’m looking for help with **Competitive Programming.**
 
-- 👨‍💻 All of my projects are available at [https://subrat-prakash.netlify.app/](https://subrat-prakash.netlify.app/)
+- 👨‍💻 All of my projects are available at [https://subrat-prakash.vercel.app/](https://subrat-prakash.vercel.app/)
 
 - 💬 Ask me about **Anything related to Web Developmentt.**
 
